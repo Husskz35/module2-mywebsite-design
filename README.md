@@ -1,1 +1,1 @@
-This about my website planning process
+This is about my website planning process
